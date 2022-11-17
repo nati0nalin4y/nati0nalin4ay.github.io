@@ -1,5 +1,5 @@
 ### Welcome to *nati0nalin4ay.github.io* 
-> INAY FOR YANI!!
+> INAY FOR YANI NALANG EHE!!
 
 mga laloves ko
 - siya
