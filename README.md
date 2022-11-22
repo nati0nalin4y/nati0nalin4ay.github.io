@@ -3,7 +3,7 @@
 
 `nugagawen kung wala ka?`
 
-mga laloves ko
+laloves ko
 - SIYA
 
 
