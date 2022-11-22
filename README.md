@@ -1,4 +1,4 @@
-### Welcome to *nati0nalin4ay.github.io* 
+### Welcome to nati0nalin4ay.github.io
 **> INAY FOR YANI!!**
 
 `nugagawen kung wala ka?`
